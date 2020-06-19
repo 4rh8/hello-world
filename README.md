@@ -1,5 +1,4 @@
-# hello-world
+# This is a weekly podcast - Japanese Speaking In English
 
 
-I love you between the sky and the earth!
-And more
+We are delighted to introduce people who are passionate about studying languages. To share something interesting in the language you are studying in. Talk about travelling abroad or visit interesting places in Japan. We also like electronic dance music therefore we are interviewing artists, DJ’s and organizers.
